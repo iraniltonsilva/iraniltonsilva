@@ -1,5 +1,6 @@
 - 😄 Meu nome e iranilton de freitas silva
 - 👀 Estudor no colegio dr arnaldo busatto
-- Estou interressado em estudar
+- Estou interressado em estudar | 📚
 - Gosto de treinar e viagens 🌱
-- Pernanbucano
+- Pernanbucano 😎”
+- Viva como se fosse morrer amanhã. Aprenda como se fosse viver para sempre.
